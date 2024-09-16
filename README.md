@@ -10,25 +10,25 @@ Laser engraving is increasingly popular in Jamaica, with applications ranging fr
 
 The target market for laser-engraved products includes small businesses, corporate clients, event planners, individuals seeking personalized gifts, and local artisans. Xsomo International Ltd offers specialized printing services, including branded business forms and promotional prints, appealing to businesses needing customization and branding solutions [Xsomo International Ltd](https://xsomo.com.jm/).
 
-**3. Competition**
+**3. The Local Competition**
 
 Local competitors include companies like Bartley's All In Wood, which specializes in handcrafted wooden furniture, jewelry, and household items using laser engraving techniques. Their unique Caribbean-themed pieces and eco-friendly practices provide a competitive edge, while also leaving room for differentiation by focusing on other materials or innovative design elements [Bartley's All In Wood](https://bartleysallinwood.com.jm/).
 
-----
+
 
 **Here are three additional competitors in the laser engraving business environment in Jamaica:**
 
 1. Etch To Etch Jamaica:
 - Specializes in custom branding and laser engraving on various products like drinkware, personal accessories, and kitchenware. They offer customization options on items like Yeti tumblers and wooden keyrings.
-- Website: Etch To Etch Jamaica
+- Website: [Etch To Etch Jamaica](https://etchtoetchja.com/)
 
 2. Mekah Prints:
 - Offers laser engraving services on a range of products, including drinkware, bamboo items, officeware, and leatherette gifts. Their advanced laser technology allows for vector cutting and engraving on materials like wood, metal, and acrylic.
-- Website: Mekah Prints
+- Website: [Mekah Prints](https://www.mekahprints.com/)
 
 3. EM Kay Sports:
 - Provides custom engraving services along with a range of other products like sports trophies and promotional items. They have a focus on quality products and customer service, using computerized laser engraving and sublimation techniques.
-- Website: EM Kay Sports
+- Website: [EM Kay Sports](http://www.emkaysportsja.com/)
 
 
 
